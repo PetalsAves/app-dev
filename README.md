@@ -8,3 +8,4 @@
 First term
 : Queen of Tears is an Korean drama of 2024, it's about the two married couple that living in luxury life but something is missing in their marriage.
 Watch the drama in Netflix so you can ==cry== with us thinking why this is happening to them.
+hatdog
